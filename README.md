@@ -1,0 +1,1 @@
+# AI-Produkuj-ce-banknoty-po-500-z-za-patenty-google
